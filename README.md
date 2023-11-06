@@ -1,0 +1,1 @@
+# AD_Quantumult_X_Free
